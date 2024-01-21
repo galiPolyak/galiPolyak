@@ -1,6 +1,5 @@
 - 👋 Hi hi, I’m Gali Polyak
 - 🎨 Loves: Visual arts and learning new music
-- 🫒 Hates: Olives
 - 🎸 Currently learning: How to play the acoustic guitar!!
 - 📫 You can reach me by email: gali.polyak@gmail.com
 
